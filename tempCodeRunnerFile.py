@@ -1,0 +1,1 @@
+temperature in Washington, DC on October 3, 2012
